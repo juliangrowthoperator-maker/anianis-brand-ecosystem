@@ -1,1 +1,0 @@
-# anianis-brand-ecosystem
